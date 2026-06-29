@@ -1,4 +1,4 @@
-# 
+# Personalizado Wave modelos para Mac OS | VIP Wave modelos para PC Windows. Com fluxos de aprovação e personalização de relatórios — otimizado para máximo desempenho em cada plataforma.
 
 
 
